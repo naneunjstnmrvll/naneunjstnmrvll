@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @naneunjstnmrvll
+- 🌱 I’m currently studying architecture
+- 📫 How to reach me: sc - jravilla_24 / ig - 24.jstn
